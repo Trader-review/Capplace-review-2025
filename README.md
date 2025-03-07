@@ -9,7 +9,7 @@ In this review, we will examine Capplace’s latest updates, trading conditions,
 
 
 
-![image]()
+![image](https://github.com/Trader-review/Capplace-review-2025/blob/48cb512ae9157b0de87d31036b0ab7ec06c7fca7/1x-back.jpg)
 
 Key Updates and Changes in 2025
 --------------------
